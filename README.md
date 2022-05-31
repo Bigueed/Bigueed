@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bigueed 
+- 👀 je suis actuellement interressé au Hacking éthique 
+- 🌱 je suis étudiant en Sécurité informatique 😊
+- 📫 email : degbogilchrist4@gmail.com
